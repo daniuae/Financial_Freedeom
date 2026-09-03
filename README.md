@@ -1,1 +1,1 @@
-# Financial_Freedeom
+Financial Freedom
